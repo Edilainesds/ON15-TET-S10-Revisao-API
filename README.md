@@ -9,7 +9,7 @@ Aprender a aprender pode ser muito doloroso, mas eu te garanto uma coisa: é lib
 
 * Vamos começar com um momento só nosso ❤️
 * Depois vamos revisar alguns dos conceitos estudados nas últimas semanas
-* E de quebra teremos bastante treino!
+* E de quebra teremos bastante treino!!!
 
 ---
 
